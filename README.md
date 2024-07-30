@@ -8,3 +8,4 @@ Meu nome é Livia Burani
 -Utilizo esse espaço para minha organização e compartilhamento dos meus projetos desenvolvidos.
 
 ![](https://media1.tenor.com/m/m7Zq604haUMAAAAC/alice-glass-crystal-castles.gif)
+![](https://media1.tenor.com/m/i8j9FCKCKHoAAAAd/rayanne-ferreira-tiktok.gif)
